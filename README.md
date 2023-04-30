@@ -1,2 +1,2 @@
 ### dreadhead code fiend
-discord: dieter#7271 | instagram: dieterw_ | steam: iloveskinnybitches
+# discord: dieter#7271 | instagram: dieterw_ | steam: iloveskinnybitches
