@@ -1,4 +1,3 @@
-## 17 year old dreadhead + code fiend
+## computer science at uw
 ### discord: dieter#7271 
 ### instagram: dieterw_ 
-### steam: iloveskinnybitches
