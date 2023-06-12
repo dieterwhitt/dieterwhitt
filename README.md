@@ -1,3 +1,3 @@
 ##### uw comp sci
-##### discord: dieter#7271 
+##### discord: dieterw_ 
 ##### instagram: dieterw_ 
