@@ -1,3 +1,2 @@
-##### waterloo cs
-##### discord: dieterw_ 
-##### instagram: dieterw_ 
+##### waterloo computer science
+
