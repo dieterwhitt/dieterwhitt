@@ -1,2 +1,2 @@
-### waterloo computer science
-#### https://leetcode.com/dieterwhittingham/
+#### waterloo computer science
+##### https://leetcode.com/dieterwhittingham/
